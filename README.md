@@ -1,2 +1,0 @@
-# lipsch-hth
-beeldend kunstenaar
